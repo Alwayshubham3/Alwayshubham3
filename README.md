@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **pandeyshubham922@gmail.com**
 
-- ⚡ Fun fact **a am funny**
+- ⚡ Fun fact **I am funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
